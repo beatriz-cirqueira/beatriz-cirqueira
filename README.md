@@ -11,7 +11,7 @@ My name is Beatriz, i'm 23 and currently in a learning process to become a Full 
 <br>
 :computer: and I work as Media Assistant in a Digital Marketing agency.
 <br>
-:blue_heart: But the passion I have for technology and problem solving using technology has led me to want to go a little further.
+:blue_heart: But the passion I have for problem solutions using technology have led me to want to go a little further.
 <br>
 <br>
 You can reach me and have a chat, if you want, clicking the button below:
